@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **Yes but I am stronger**
 
-- 📫 How to reach me **rustamjon.sahobiddinov@gmail.com**
+- 📫 How to reach me **gojo@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
